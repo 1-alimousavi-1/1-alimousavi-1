@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @1-alimousavi-1
+- 👀 I’m interested in Learning, teamwork, challenge, training.
+- 🌱 I’m currently learning Python, C #, Artificial Intelligence, ASP.NET, PHP, HTML, CSS, game development,penetration test.
+- 💞️ I am looking for cooperation in any field.   :)
+- 📫 How to reach me :  INSTAGRAM: 1_ALIMOUSAVI_1     TELEGRAM: alimousavi_1     GMAIL: 1.seyedalimousavi.1@gmail.com
